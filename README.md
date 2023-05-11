@@ -4,7 +4,7 @@ People that can actually code
 
 * disclearing - I am just me 
 * curtis - Major brr spigot 2k moving players at 20 tps :) curtis#6742
-* Elb1to - Major bean but major dick has small chode frost is basically zonix but no one cares - he Made bread from it gg Elb1to#0001 - also can not make mac and cheese 
+* Elb1to - Major bean but major dick has small chode frost is basically zonix but no one cares - he Made bread from it gg Elb1to#0001 - also can not make mac and cheese ![image](https://cdn.discordapp.com/attachments/1105881657518604453/1106226915859255346/IMG_20200726_211717.png)
 * Topu - Well he is topu he is dev123.potpvp.com guy Topu#7086
 * Brewage - Has a iq nice black man can make a nice chicken sandwhich - Brewage#1667
 * Freddie/FreddieJLH - dissapears 24/7 never actually know if he is online but can code decent major retarded brain sometimes Freddie#3023
