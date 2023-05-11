@@ -9,3 +9,4 @@ People that can actually code
 * Brewage
 * Moose1301
 * Erkums
+* Freddie/FreddieJLH
