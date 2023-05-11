@@ -9,4 +9,4 @@ People that can actually code
 * Brewage - Has a iq nice black man can make a nice chicken sandwhich - Brewage#1667
 * Freddie/FreddieJLH - dissapears 24/7 never actually know if he is online but can code decent major retarded brain sometimes Freddie#3023
 * Moose1301 - well everyone knows this guy he does the block game stuff made a lunar api and other shit Moose1301#9437
-* Notion - Its notion he does 1.19 - notion#1000
+* Notion - Its notion he does 1.19 and 1.8 he asked me to make sure yk that - Notion#1000
