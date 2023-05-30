@@ -12,3 +12,4 @@ People that can actually code
 * Notion - Its notion he does 1.19 and 1.8 he asked me to make sure yk that - Notion#1000
 * RNOIncognito - p good anticheat dev, sorta knows what he's doing half the time and the other half he will sleep - Incognito#2218
 * Saif - he's life a safe that can never be opened unless he codes an anticheat - Saif#7684
+* Marko - Big body builder has major ego pls buy his plugins - Marko#6943
